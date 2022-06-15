@@ -1,0 +1,1 @@
+Zoro sola fodase
